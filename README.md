@@ -1,0 +1,2 @@
+# Afaan-Oromo-Hate-Speech
+ 
